@@ -1,1 +1,1 @@
-getting started files
+Getting started with git
