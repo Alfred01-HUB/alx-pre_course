@@ -1,1 +1,1 @@
-i am smarter dan dami
+i am smarter dan my dick
