@@ -1,1 +1,1 @@
-Getting started with git
+i am smarter dan dami
